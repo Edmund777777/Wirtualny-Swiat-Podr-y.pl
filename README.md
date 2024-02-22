@@ -1,0 +1,1 @@
+# Wirtualny-Swiat-Podr-y.pl
